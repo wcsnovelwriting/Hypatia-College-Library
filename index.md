@@ -8,6 +8,6 @@
 #### You can also propose different topics, conduct research, report and publish your results in groups, or organise research teams to work on them together.
 
 #### Warm tips:
-1. Conduct constructive discussions in the library. 2.
+1. Conduct constructive discussions in the library
 2. make good use of the ‘Group Media’ function to search for the information you need as it may be covered by other information
 3. don't be a metaphysician on the cloud, think about why your theory and knowledge is there, how it presents contradictions, and what it requires.
